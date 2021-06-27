@@ -1,0 +1,1 @@
+# class-40-finix-template-with-resposnive-
